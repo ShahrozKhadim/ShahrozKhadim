@@ -72,7 +72,7 @@ I'm a passionate mobile app developer with 2.5+ years of experience building sca
 ## 📫 Contact Me
 
 - **Email:** ShahrozKhadim2020@gmail.com  
-- **LinkedIn:** [Shahroz Khadim](https://linkedin.com/in/shahroz-khadim-983495204)  
+- **LinkedIn:** [Shahroz Khadim](https://www.linkedin.com/in/shahroz-khadim-983495204)  
 - **Medium:** [@shahrozkhadim2020](https://medium.com/@shahrozkhadim2020)  
 - **Resume:** Available upon request
 
